@@ -1,1 +1,1 @@
-# Hi there, this is Tech!
+# Hi there, this is Hype from NTPH!
