@@ -1,1 +1,1 @@
-# Hi there, this is Hype from NTPH!
+# Hello, this is NTPH!
